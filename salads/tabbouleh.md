@@ -1,0 +1,11 @@
+INGREDIENTS:
+- ½ cup bulgur
+- 1 cup diced cucumber (1 small-to-medium)
+- 1 cup diced tomato* (1 large)
+- 1 teaspoon fine sea salt, divided
+- 3 medium bunches curly parsley
+- ⅓ cup (⅔ ounce) chopped fresh mint (optional but recommended—you can chop it in the food processor with the parsley)
+- ⅓ cup thinly sliced green onion
+- ⅓ cup extra-virgin olive oil
+- 3 to 4 tablespoons lemon juice, to taste
+- 1 medium clove garlic, pressed or minced
