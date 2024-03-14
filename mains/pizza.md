@@ -6,4 +6,4 @@ Pizza recipe:
 1 cheese
 
 optional: 
-topings 
+toppings 
