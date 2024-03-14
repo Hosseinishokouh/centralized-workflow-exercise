@@ -10,7 +10,7 @@ INGREDIENTS:
 - 3 to 4 tablespoons lemon juice, to taste
 - 1 medium clove garlic, pressed or minced
 
-INstructiooons:
+Instruction:
 - Cook or soak bulgur as indicated on the package, drain, and let cool.
 - Mix diced cucumber and tomato with ½ teaspoon salt, let sit for at least 10 minutes.
 - Prepare parsley by removing thick stems, finely chopping the leaves and thin stems, and placing them in a large bowl.
