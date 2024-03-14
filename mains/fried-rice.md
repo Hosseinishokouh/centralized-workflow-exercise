@@ -14,3 +14,6 @@ A popular Asian dish with a mix of fresh ingredients and spice.
 -**1 tbs** sambal oelek
 -**2 tbs** oyster sauce
 
+# Instructions
+
+Mix everthing together and fry it!
