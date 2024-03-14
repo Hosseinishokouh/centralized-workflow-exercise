@@ -1,6 +1,6 @@
 # Milkshake recipe
 
-## Ing
+## Ingredients
 
 - Milk
 
