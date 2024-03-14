@@ -8,7 +8,7 @@
 1 table spoon yogurt
 1,5 dl wheat flour
 1 tee spoon baking powder
-1 tee spoon sooda
+1 tee spoon baking soda
 1 tee spoon kardemum
 1 tee spoon cinemmon
 1 tee spoon ginger
