@@ -4,4 +4,4 @@
 - Rum & Coke
 - Beer
 - Wine
-- Desert Wine 
+- Dessert Wine 
