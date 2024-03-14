@@ -14,4 +14,4 @@
 
 - Mix egg yolks with the chesse pepper and paprika
 - Cook the zucchini with more paprika
-- Mix everithing with the coocked pasta while adding pasta water 
+- Mix everithing with the boiled pasta while adding pasta water 
